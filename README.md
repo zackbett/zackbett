@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @zackbett
-- 👀 I’m interested in cypto
+- 👋 Hi, I’m MAJYY i'm an Pixelart artist (just like cryptopunks)
+- 👀 I’m interested in cypto, NfT, everything on Blockchain
 - 🌱 I’m currently learning blockchain
-- 💞️ I’m looking to collaborate on solana network project
+- 💞️ I’m looking to collaborate which fresh project in NFT field
 - 📫 How to reach me dm me
 
 <!---
